@@ -64,7 +64,7 @@ If you would like to support this project for better version, you can give some 
 
 Thanks
 
-Regards ~ Shakil
+Regards ~ Muzammil Javed
 
 
 
